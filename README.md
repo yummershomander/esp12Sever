@@ -1,0 +1,2 @@
+# esp12Sever
+SEGS?GJP"JGPOgro.gdljgs.kgs/lgsjka/siE:3u8p27tp89ujdoshlyitol8thyoly4qhotyotuqlkzdjdjmnedjmndxjmndmfdkhgsbooiabbtfbpbefbyiobyibyfibffbybyiyfa7yoo3yfo27wtbt78wotianlt4abtywti7bwutawley.awgja.ieghailhfwi7qyfieahlyurag
